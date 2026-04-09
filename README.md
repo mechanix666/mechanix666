@@ -11,4 +11,4 @@
   <a href="https://blacksabbath.atabook.org/">atabook</a>
 </p>
 
-<sub><sup>　　quick byi i'm a 17 y.o cismale & openly not a good person, i don't care ab proshippers + i believe any form of censorship is inherently harmful. block me if i make you uncomfortable, i won't ask why or take it personally</sup></sub>
+<sup>　　quick byi i'm a 17 y.o cismale & openly not a good person, i don't care ab proshippers + i believe any form of censorship is inherently harmful. block me if i make you uncomfortable, i won't ask why or take it personally</sup>
